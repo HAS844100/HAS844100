@@ -121,3 +121,6 @@ what we offer
 CFDA is a program set up to help people maintain good standard of living, eradicate poverty and empower people for different purposes. its specially place for those who need assistance paying for medical bills, buying a home, salesman starting their own business, going to school, teachers, retired teachers, or even helping raise their children with senior old, retired people and disabled people
 
 CONTACT US
+
+
+📧 humanresourcescompany743@gmail.com
